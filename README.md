@@ -20,6 +20,8 @@ Cream butter and sugar, add eggs, yolks
 and whites beaten together, then dates, orange rind and
 milk, lastly the flour, baking powder and salt sifted together.
 
+Recipe from [Woman's World calendar cook book](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25)
+
 Beat throughly and bake in two oiled layer cake pans in
 a moderate oven—about 350°F. When cool, fill and frost.
 
