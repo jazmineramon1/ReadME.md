@@ -43,3 +43,5 @@ Recipe from [Woman's World calendar cook book](https://babel.hathitrust.org/cgi/
 ## Source
 Allen, Ida Bailey. *Woman's World Calendar Cook Book*. Chicago: Woman's World Magazine Co., 1922. 
 [https://catalog.hathitrust.org/Record/100770279](https://catalog.hathitrust.org/Record/100770279)
+
+![Cookbook cover](images/calendar_cookbook_cover.jpg)
